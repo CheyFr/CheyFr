@@ -1,1 +1,1 @@
-Hi there, I am a Master student at Universitiy of Bern!
+Hi there, I am a grad student at Universitiy of Bern!
